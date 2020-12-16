@@ -3,4 +3,5 @@
 nigga
 beans
 nut
-crackers
+cracker 
+master

@@ -2,3 +2,5 @@
 
 nigga
 beans
+nut
+crackers
